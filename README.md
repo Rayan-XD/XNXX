@@ -27,5 +27,4 @@ Tools Terbaru Crack Fb 🥰😎
      
 
  ```Ini Tools Free Enjoy ```</br>
- [![Whatsapp](https://img.shields.io/badge/Whatsapp-RayanXD-deepgreen?style=flat-square&logo=whatsapp)](https://wa.me/+6285852768706)# Kunti
-Tools Crack Fb🔥
+ [![Whatsapp](https://img.shields.io/badge/Whatsapp-RayanXD-deepgreen?style=flat-square&logo=whatsapp)](https://wa.me/+6285852768706)
