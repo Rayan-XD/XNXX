@@ -23,7 +23,7 @@ Tools Terbaru Crack Fb 🥰😎
 - `rm -rf XNXX`
 - `git clone https://github.com/Rayan-XD/XNXX`
 - `cd XNXX`
-- `python xnxx.py`
+- `python run.py`
      
 
  ```Ini Tools Free Enjoy ```</br>
